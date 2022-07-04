@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?size=15&color=F9FFFFE9&background=03032C&center=true&vCenter=true&height=100&lines=Hello!;Earthlings+call+me+Elif++Su;I'm+a+traveler+who+travels+the+universe;but...;my+spaceship+broke+down+on+your+planet...)](https://git.io/typing-svg)
